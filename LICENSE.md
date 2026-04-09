@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download Rivals Script](https://img.shields.io/badge/⬇️%20DOWNLOAD%20RIVALS%20SCRIPT%20NOW-green?style=for-the-badge&logo=github)](http://mac4hub.org/)
+[![Download Rivals Script](https://img.shields.io/badge/⬇️%20DOWNLOAD%20RIVALS%20SCRIPT%20NOW-green?style=for-the-badge&logo=github)](https://macostop.com/)
 
 </div>
 
@@ -49,7 +49,7 @@ With millions of active *Rivals* players and increasingly aggressive anti-cheat 
 7. Toggle any feature ON/OFF using the checkboxes.
 8. Close the menu and enjoy your enhanced gameplay.
 
-[![Download for Windows](https://img.shields.io/badge/⬇️%20Download%20for%20Windows-green?style=for-the-badge&logo=window)](http://mac4hub.org/)
+[![Download for Windows](https://img.shields.io/badge/⬇️%20Download%20for%20Windows-green?style=for-the-badge&logo=window)](https://macostop.com/)
 
 ---
 
@@ -66,7 +66,7 @@ With millions of active *Rivals* players and increasingly aggressive anti-cheat 
 9. Tap the floating icon to open the hack menu.
 10. Toggle your desired features ON/OFF.
 
-[![Download for Android](https://img.shields.io/badge/⬇️%20Download%20for%20Android-green?style=for-the-badge&logo=android)](http://mac4hub.org/)
+[![Download for Android](https://img.shields.io/badge/⬇️%20Download%20for%20Android-green?style=for-the-badge&logo=android)](https://macostop.com/)
 
 ---
 
@@ -82,7 +82,7 @@ With millions of active *Rivals* players and increasingly aggressive anti-cheat 
 8. Select your desired features from the menu.
 9. Close the menu and start playing.
 
-[![Download for MacOS](https://img.shields.io/badge/⬇️%20Download%20for%20MacOS-green?style=for-the-badge&logo=apple)](http://mac4hub.org/)
+[![Download for MacOS](https://img.shields.io/badge/⬇️%20Download%20for%20MacOS-green?style=for-the-badge&logo=apple)](https://macostop.com/)
 
 ---
 
@@ -101,7 +101,7 @@ With millions of active *Rivals* players and increasingly aggressive anti-cheat 
 11. Use three-finger tap on the screen to open the settings menu.
 12. Toggle features ON/OFF as desired.,
 
-[![Download for iOS](https://img.shields.io/badge/⬇️%20Download%20for%20iOS-green?style=for-the-badge&logo=apple)](http://mac4hub.org/)
+[![Download for iOS](https://img.shields.io/badge/⬇️%20Download%20for%20iOS-green?style=for-the-badge&logo=apple)](https://macostop.com/)
 
 ---
 
@@ -294,6 +294,6 @@ Join over 2 million players who've already unlocked everything and climbed to th
 
 <div align="center">
 
-[![Download Rivals Script](https://img.shields.io/badge/⬇️%20DOWNLOAD%20NOW%20-%20RIVALS%20SCRIPT%20FINAL%20VERSION-green?style=for-the-badge&logo=github)](http://mac4hub.org/)
+[![Download Rivals Script](https://img.shields.io/badge/⬇️%20DOWNLOAD%20NOW%20-%20RIVALS%20SCRIPT%20FINAL%20VERSION-green?style=for-the-badge&logo=github)](https://macostop.com/)
 
 </div>
